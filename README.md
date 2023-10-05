@@ -5,8 +5,8 @@
 - 🐝 Popularly known as `codebee` as regards my work ethic 
 - 🕶 I’m a `full stack python Django developer`
 - 🏛 `Computer science major`
-- 💞️ Passionate about providing innovative solutions to complex challenges
-- 🤝 Team player, Open to collaborate on projects 
+- 💞️ `Passionate` about providing `innovative` solutions to complex challenges
+- 🤝 `Team player`, Open to collaborate on projects of any complexity
 - You can reach to me on whatsapp using my line `+2349128168542` lets connect and build awesome ideas together 
 
 <!---
