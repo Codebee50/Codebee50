@@ -1,7 +1,8 @@
 # Onuh Kyrian Udochukwu 
 
 
-- 👋 Hi, I’m @Codebee50
+- 👋 Hi, I’m Kyrian
+- 🐝 Popularly known as `codebee` as regards my work ethic 
 - 🕶 I’m a `full stack python Django developer`
 - 🏛 `Computer science major`
 - 💞️ Passionate about providing innovative solutions to complex challenges
