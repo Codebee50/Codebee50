@@ -16,7 +16,7 @@
 
 I am currently open to an internship or new Job opportunity
 
-You can reach to me on whatsapp using my line +2349128168542 or send me a mail at codebee345@outlook.com lets connect and build awesome ideas together
+You can reach to me on whatsapp using my line +16462816990 or send me a mail at codebee345@outlook.com lets connect and build awesome ideas together
 Find out more about me on https://kyrian.pro
 
 ## 🌐Socials
